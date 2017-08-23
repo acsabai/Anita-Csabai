@@ -1,2 +1,2 @@
-# Phyics Class 9A
+# Physics Class 9A
 Tuesday 9 AM
